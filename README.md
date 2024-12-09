@@ -6,4 +6,4 @@
 I am Nineko and I live to learn. I try a lot of new things but I also like to make functional software.
 
 ## Pronouns
-[![cinnamon's pronouns](https://pronouns-page.s3.eu-west-1.amazonaws.com/card/en/cinnamon_cute-01H4KVKYJA7D3WFCV6EGRXP0J2-dark.png)](https://en.pronouns.page/@cinnamon_cute)
+[![cinnamon's pronouns](https://pronouns-page.s3.eu-west-1.amazonaws.com/card/en/cinnamon_cute-01JEP8NJ70HX9GSJE04V5SGCYX-dark.png)](https://en.pronouns.page/@cinnamon_cute)
